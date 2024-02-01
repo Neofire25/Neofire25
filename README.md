@@ -2,4 +2,4 @@
 - 👀 I’m interested in Games, Music, Art, Software
 - 🌱 I’m currently learning Too little / Too much
 - 💞️ I’m looking to collaborate on creating small games
-- 📫 How to reach me: YT, DC, Reddit, Tumblr
+- 📫 Feel free to reach out to me on any platform ^^
